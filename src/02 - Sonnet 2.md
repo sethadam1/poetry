@@ -14,4 +14,4 @@ the breeze began to wane and back away
 I closed to my eyes to capture this rare scene  
 as flowers turned to face the proper way.  
 The orchestrated beauty nature calls,  
-if they should pause, available to all.
+if they should pause, available to all.  
