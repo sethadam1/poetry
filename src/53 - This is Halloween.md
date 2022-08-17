@@ -33,7 +33,7 @@ I'll just take 3 Musketeers.
 Playing defense with the grown ups  
 Stealing all our Reese's Cups.   
   
-Wonder what the adults means  
+Wonder what the adults mean  
 When they say that Halloween  
 Isn't for them anymore...   
 Then who's the leftover candy for?   
