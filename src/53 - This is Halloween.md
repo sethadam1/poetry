@@ -35,5 +35,5 @@ Mom steals all our cups from Reese's.
   
 Wonder what the adults mean  
 When they say that Halloween  
-Isn't for them anymore...
+Isn't for them anymore...  
 Then who's the leftover candy for?
