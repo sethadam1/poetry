@@ -59,7 +59,7 @@ Hey hey hey hey!
   
 I calmed myself and drank some tea  
 You had a glass of warm chablis  
-We spent aside some old debris  
+We swept aside some old debris  
 Hey hey hey!  
   
 I chomped upon a fresh cashew  
