@@ -84,5 +84,5 @@ And all of us spend all night long helping to load their water
 And in that precious balance hangs a planetary plight  
 The peace was forged around my kitchen table that one night  
 We help them load, exchanging sweet goodbyes and then good-lucks  
-Our peace in remains unless once day, they see Dasani sucks.  
+Our peace abides, lest they realize, that, man, Dasani sucks.  
    
